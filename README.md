@@ -4,7 +4,7 @@
 
 Interested in a modern landing page or website for your business?
 
-📩 Email: clientforgestudio@gmail.com / sudhakarrali516gmail.com  
+📩 Email: clientforgestudio@gmail.com / sudhakarrali516@gmail.com  
 💼 Portfolio: https://netlify.com/sudhakarportfolio.com
 
 ---
